@@ -1,0 +1,1 @@
+# skvot_task6_2
